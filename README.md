@@ -12,7 +12,7 @@ We're constantly staying up-to-date with the latest trends, techniques, and insi
 We're open to collaborating with educators, career counselors, industry professionals, and anyone passionate about helping students succeed in their career goals. Whether it's contributing resources, sharing expertise, or forming partnerships, we're excited to work together to support students on their journey.
 
 ## 📫 How to Reach Us
-Have questions, feedback, or want to explore collaboration opportunities? Feel free to reach out to us via email at contact@collegeplacementpro.com or connect with us on social media [@collegeplacementpro](https://twitter.com/collegeplacementpro).
+Have questions, feedback, or want to explore collaboration opportunities? Feel free to reach out to us via email at collegeplacementpro.help@gmail.com or connect with us on social media [@collegeplacementpro](https://twitter.com/collegeplacementpro).
 
 ## 😄 Pronouns
 We embrace diversity and inclusivity. Our team respects and acknowledges all pronouns.
